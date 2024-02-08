@@ -1,2 +1,2 @@
-# terabox-download
-terabox get link download
+# SAWER??, TRAKTIR KOPI?? - <a href='https://saweria.co/FikriMUHAMAD'>DIMARI BANG</a>
+<b>BANG KALO LU KETAUAN COLI GARA-GARA INI GW GAK TANGGUNG JAWAB YA BANG</b>
